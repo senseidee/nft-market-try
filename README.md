@@ -1,3 +1,5 @@
+My duscird acc - hatefomo
+
 # aleo_store_nft.aleo
 
 ## Build Guide
