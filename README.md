@@ -1,4 +1,4 @@
-My duscird acc - hatefomo
+My discord acc - hatefomo
 
 # aleo_store_nft.aleo
 
